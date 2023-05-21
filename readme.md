@@ -1,2 +1,1 @@
-MSIB Nurul Fikri Batch 3
-MSIB Nurul Fikri Batch 2
+MSIB Data Analyst Celerates
